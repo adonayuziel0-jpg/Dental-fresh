@@ -1,2 +1,0 @@
-# Dental-fresh
-Clinica dental
